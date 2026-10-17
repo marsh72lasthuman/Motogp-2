@@ -222,4 +222,4 @@ MotoGP 2 is offered as the **full free version** with all features and updates i
 Don't miss out on the excitement! **Download MotoGP 2 now and start your racing journey today!**
 
 ---
-**Last updated:** 2026-10-17 07:18:49 UTC
+**Last updated:** 2026-10-17 11:51:05 UTC
